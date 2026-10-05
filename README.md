@@ -30,7 +30,7 @@
 
 <br><br>
 
-💙 **Oii! Eu sou o Vitor Laval.** 💙
+💙 **Oii! Eu sou o Vitor.** 💙
 
 <br><br>
 
